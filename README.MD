@@ -88,4 +88,3 @@ And that concludes all X/Twitter hints i could gather and all available #Defipuz
 
 Defipuzzle.xyz IMAGE and POINTERS:
 
-
