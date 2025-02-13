@@ -84,7 +84,3 @@ The puzzle creator seen here @EcoBuildr (@HEXfutures on YouTube same person) has
 
 And that concludes all X/Twitter hints i could gather and all available #Defipuzzleclue stuff...for now. 
 
-
-
-Defipuzzle.xyz IMAGE and POINTERS:
-
